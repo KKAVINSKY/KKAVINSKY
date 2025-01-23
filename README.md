@@ -1,14 +1,4 @@
-# " 𝐼 𝓉hought 𝓉hat 𝐼 𝓌as 𝒹reamin' 𝓌hen 𝓎ou 𝓈aid 𝓎ou 𝓁ove 𝓂e " 
+<img align="left" src="https://i.pinimg.com/736x/65/30/b8/6530b85bf57d46152e661568c86513a3.jpg" width="360"> <p align="center"> **Heya! i am Harvey , but you can call me dae aswell ~ !** <br>
+<br> He/him <br> Gay <br> <br> normally found at hoyo area . <br> i make nsfw jokes, kys/kms/jump jokes aswell ! </p>
 
-![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
-
-![](https://i.pinimg.com/736x/b9/15/13/b915137cbf968aad5f5a51db96ca8a37.jpg)
-
-
-![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
-
-Harvey or Dae , minor ◡ he / him ! gay :3 
-
-Always @ hyv area . Always C + H !! 
-
-Dae lover
+<br>
