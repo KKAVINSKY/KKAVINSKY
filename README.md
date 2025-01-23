@@ -1,16 +1,14 @@
-## Hi there 👋
+# " 𝐼 𝓉hought 𝓉hat 𝐼 𝓌as 𝒹reamin' 𝓌hen 𝓎ou 𝓈aid 𝓎ou 𝓁ove 𝓂e " 
 
-<!--
-**KKAVINSKY/KKAVINSKY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
 
-Here are some ideas to get you started:
+![](https://i.pinimg.com/736x/6d/78/d2/6d78d23bb1c2bd27fddf7da018c1900a.jpg)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
+
+Nicholas , minor ◡ he / him ! gay :3 
+
+Always @ hyv area . Always C + H !! 
+
+Proud baizhu main !
